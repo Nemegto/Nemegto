@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nemegto
+- 👀 I’m interested in music, art, chemistry, animals, anime, and reading.
+- 🌱 I’m currently learning html.
+- 💞️ I’m looking to collaborate on dtiy's!
+- 📫 How to reach me: IG:@nemegto_art
